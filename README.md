@@ -1,1 +1,1 @@
-Here you go Dennis!
+Reading is overrated.
